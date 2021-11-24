@@ -1,2 +1,2 @@
 # lorealfestar
-https://redgentle.github.io/lorealfestar/index.html
+https://redgentle.github.io/lorealfestar/review.html
